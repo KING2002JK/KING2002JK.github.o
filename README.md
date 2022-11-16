@@ -1,2 +1,2 @@
-# KING2002JK.github.o
+# KING2002JK.github.io
 博客
